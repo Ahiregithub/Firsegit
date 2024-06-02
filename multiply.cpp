@@ -1,0 +1,1 @@
+key=lsdn,nmc ṣ ,mmxckljdklj;
